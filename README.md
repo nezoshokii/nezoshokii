@@ -1,5 +1,8 @@
 mm i love my friends ^u^
  <p align="center"
+
+
+<p align="center"
   
 ##### [rentry](https://rentry.co/iamstormz) 🌹 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/fkj90r.png)   [prns cc](https://pronouns.cc/@planet)  ❔  [strwpg](https://iamstormz.straw.page/) 
 
