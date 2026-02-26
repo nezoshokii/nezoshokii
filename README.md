@@ -1,4 +1,4 @@
-mm i love my friends ^u^
+sign my ataa nowww ! im not scarie lol 
  <p align="center"
 <a href="https://hits.sh/github.com/nezoshokii/"><img alt="Hits" src="https://hits.sh/github.com/nezoshokii.svg?label=%F0%9F%8C%B9%20fans%20(views)&color=d22e49&labelColor=c28691"/></a>
 
