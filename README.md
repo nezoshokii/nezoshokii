@@ -4,7 +4,7 @@ sign my ataa nowww ! im not scarie lol
 
 <p align="center"
   
-##### [rentry](https://rentry.co/iamstormz) 🌹 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/fkj90r.png)   [prns cc](https://pronouns.cc/@planet)  ❔  [strwpg](https://iamstormz.straw.page/) 
+##### [rentry](https://rentry.co/iamstormz) 🌹 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/fkj90r.png)   [prns cc](https://pronouns.cc/@planet)  ❔  [BYI](https://rentry.co/sea4) 
 
 <p align="center"
 
