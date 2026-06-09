@@ -21,4 +21,4 @@ ac(s) = [zzzzlan114](https://x.com/zzzzlan114?s=21) & [uraearf](https://x.com/ur
 
 <p align="center"
 
-my favorite lesbian @deepaffection
+my favorite lesbian [@deepaffection](https://github.com/deepaffection)
