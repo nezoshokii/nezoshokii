@@ -17,3 +17,8 @@ yoo sign my ata thxx~~ uwu
 <p align="center"
 
 ac(s) = [zzzzlan114](https://x.com/zzzzlan114?s=21) & [uraearf](https://x.com/uraearf?s=21)  🪽
+
+
+<p align="center"
+
+my favorite lesbian @deepaffection
